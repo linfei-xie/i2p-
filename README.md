@@ -1,7 +1,9 @@
-#**谢林非**
-##**study at UCl**
+**谢林非**
+***
+**study at UCl**
+***
 + From Chongqing
 + Gruduated from Chongqing university
-+ used to work as planner 
++ Have been worked as urban planner 
 ***
-[知乎](https://www.zhihu.com/)
+[知乎](https://www.zhihu.com/people/xie-lin-fei-31)
