@@ -1,2 +1,2 @@
-# i2p-edit on 10.2
+# i2p-practical
 谢林非
